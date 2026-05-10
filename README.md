@@ -1,1 +1,1 @@
-<img width="100" height="100" alt="16d13a0becdbc753e2fd1d71dd8c97a7~tplv-tiktokx-cropcenter_100_100" src="https://github.com/user-attachments/assets/51e18128-3b2b-477f-90d9-3c3bf86e582c" />
+<img width="1199" height="839" alt="acd57ec6aab9646c3adf78c7c8ec5390" src="https://github.com/user-attachments/assets/17024bdc-487c-47c0-a5f3-483be2d48f42" />
